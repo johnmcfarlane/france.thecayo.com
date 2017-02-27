@@ -90,7 +90,7 @@ OF AGE</p>
   offer the accommodation before the time stated and the client shall not be entitled 
   to remain in occupation after the time stated.</p>
 <p align="justify">8. The maximum number to reside in the Property shall not exceed 
-  5 unless the Owners have given written permission. Pets are not allowed.</p>
+  4 unless the Owners have given written permission. Pets are not allowed.</p>
 <p align="justify">9. The Client agrees to be a considerate tenant and to take 
   good care of the Property and to leave it in a clean and tidy condition at the 
   end of the rental period. The rental price is inclusive of a final clean by 
